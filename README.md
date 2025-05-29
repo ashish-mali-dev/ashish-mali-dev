@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Ashish Mali
-- 👀 I’m a Associate Software Engineer
+- 👀 I’m a Software Engineer
 - 📫 How to reach me ... ashishmali456@gmail.com
 
 Resume:-
